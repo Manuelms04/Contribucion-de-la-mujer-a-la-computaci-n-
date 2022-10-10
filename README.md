@@ -9,7 +9,7 @@ En este proyecto vamos a trabajar a cerca de la aportación de la mujera lo larg
 - [Joan Clarke](joanclarke.md)
 - [Grace Murray](gracemurray.md)
 
-***La es una científica española más relevantes a nivel mundial actualmente*** 
+***La siguiente es una de las científicas españolas más relevantes a nivel mundial actualmente*** 
 - [María Blasco](mariablasco.md)
 
  ## Referencias
