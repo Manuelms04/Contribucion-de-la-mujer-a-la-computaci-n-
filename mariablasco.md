@@ -1,3 +1,3 @@
 ## María Blasco 
 
-![image](mariblasco.jpg)
+![image](mariablasco.jpg)
